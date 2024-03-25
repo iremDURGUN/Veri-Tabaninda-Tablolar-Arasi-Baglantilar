@@ -1,0 +1,1 @@
+# Veri-Tabaninda-Tablolar-Arasi-Baglantilar
